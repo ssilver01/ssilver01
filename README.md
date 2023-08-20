@@ -1,4 +1,4 @@
-## Hi I'm Soeun 👋
+## Hi,  I'm Soeun 👋
 
 ### 📞 Contact me
 
